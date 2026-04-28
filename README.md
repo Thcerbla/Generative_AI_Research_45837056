@@ -1,1 +1,1 @@
-# Generative_AI_Research_45837056
+# Generateive_AI_Research
